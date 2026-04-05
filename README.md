@@ -1,2 +1,0 @@
-# mahashi-rody
-s
